@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Elvis868
-- 👀 I’m interested in ...hacking accounts
+- 👀 I’m interested in ...hacking accounts and coding
 - 🌱 I’m currently learning ...computer science 
-- 💞️ I’m looking to collaborate on ...hacking methods
-- 📫 How to reach me ...contact 
+- 💞️ I’m looking to collaborate on ...hacking methods and coding
+- 📫 How to reach me ...contact 0793053031
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
